@@ -1,1 +1,0 @@
-# Sergeli_TIM-app
